@@ -9,7 +9,7 @@
 
 - ⚡ Fun fact **we believe we can do anything**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with us: gravixdigital@gmail.com</h3>
 <p align="left">
 </p>
 
